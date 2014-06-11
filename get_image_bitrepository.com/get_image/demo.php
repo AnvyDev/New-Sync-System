@@ -1,1 +1,0 @@
-The image has been saved.
